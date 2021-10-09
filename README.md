@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Tx
+- Discord: Tx#4815
